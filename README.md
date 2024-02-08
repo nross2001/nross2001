@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on small coding projects
 - 📫 To be able to you can email me at nicholas.ross212@gmail.com 
 - 😄 Pronouns: He/Him
+- I'm graduating from Illinois State University with a bachelor's degree in computer systems technology
