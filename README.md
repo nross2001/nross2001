@@ -1,0 +1,6 @@
+- 👋 Hi, my name is Nicholas Ross
+- 👀 I’m interested in a lot of things but specfically technology, hardware, and a bit of coding
+- 🌱 I’m currently learning more langauges. The langauges that I know so far is java, html css, and c#
+- 💞️ I’m looking to collaborate on small coding projects
+- 📫 To be able to you can email me at nicholas.ross212@gmail.com 
+- 😄 Pronouns: He/Him
